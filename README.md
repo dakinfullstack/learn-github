@@ -1,1 +1,2 @@
 # learn-github
+Traralgon (locally /təˈrælɡən/ tə-RAL-gən) is a town located in the east of the Latrobe Valley in the Gippsland region of Victoria, Australia and the most populous city in the City of Latrobe and the region. The urban population of Traralgon at the 2021 census was 26,907.[1] It is the largest and fastest growing city in the greater Latrobe Valley area, which has a population of 77,168 [2] at the 2021 Census and is administered by the City of Latrobe.
